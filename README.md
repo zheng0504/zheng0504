@@ -1,11 +1,9 @@
-👋 Hi, I’m @zheng0504, real name: “Life’s Grief Flows East Like a River” (yeah, I named myself—poetic vibes included 😂).
+👋 Hi, I’m @zheng0504. My username is inspired by the line:
+“Endless is sorrow; in life, sorrow flows east like the river.”
+The river never stops, nor do the questions and regrets we carry. Yes, I named myself—with a touch of poetry, and a trace of reflection.
 
-👀 Scored 95 in politics on the Chinese college entrance exam and once dreamed of getting into the University of Chinese Academy of Social Sciences. Life had other plans, but that obsession with figuring out how the world works? Still here.
+👀 I scored 95 in politics on China’s college entrance exam, and once dreamed of entering the University of Chinese Academy of Social Sciences. Life had other plans, but my desire to understand how the world works remains unchanged.
 
-🌱 Currently juggling new interests and learning how to keep both ideals and reality in a firm grip ✊.
+🌱 These days, I’m exploring new interests and learning how to hold on to both ideals and reality—firmly, and without letting either slip.
 
-💞️ Collaboration? Depends on fate—and whether I’m awake or just staring at the ceiling.
-
-📫 Reach me: comments or DMs are fine. Replies may vary depending on my mood for the day 😄.
-
-⚡ Fun fact: I once had a perfectly organized life plan… then realized life is basically one big shuffle playlist.
+⚡ A quiet fact: I once wrote out a perfectly structured life plan. But in the end, life turned out to be more like a playlist on shuffle—unpredictable, yet somehow with its own rhythm.
